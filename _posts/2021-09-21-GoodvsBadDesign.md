@@ -15,3 +15,5 @@ The release of the airpod was met with a lot of hype and good reviews. Why? The 
  
 ## Bad Design
 The microwave is an everyday appliance used to heat up cold food or pop some popcorn. You may be asking yourself why the microwave falls under the group of Bad Design. To answer this question, think back to a time when you last used any buttons on a microwave other than the numbers, start, stop, and open. The multiple buttons that act as signifiers are meaningless when people only use a fraction of those buttons. The unused buttons take up space and are rarely used
+
+![alt text](3544029ld.jpg)
