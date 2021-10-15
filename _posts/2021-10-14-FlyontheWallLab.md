@@ -53,8 +53,3 @@ Inside: In this category, two big contrasts are pinned. Some people went inside 
 
 # Process of Finding the Observations
 I spent the time given to us in class to observe in Lutnick and in the library. I also spent a lot of time outside of class to observe moments in the cafeteria, the field, and Tilinghast. I worked with Jiyon during the time alloted to us during class. Some of the methods I used included sitting near whatever I was observing and glancing there secretely. However there were a few times where I was sitting down doing something else and out of no where people appeared and began to do things. In that case I merely had to stop what I was doin, open my code and add another observation. Those observations that I only recorded by chance were super satisfying and they were fun to watch. Something that didn't work was when I got too close to the people/group I was observing, it got kind of suspicious and I ended getting up and leaving. There were a few days were I had frees but forgot about the lab and didn't go out to write down observations. During this lab I was able to understand how big the community of HM is and how intricate it is. 
-
-
-
-
-
